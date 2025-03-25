@@ -1,0 +1,2 @@
+# BadIdeaInc.com
+The website
